@@ -55,8 +55,8 @@ Experienced Software Engineer with proficiency in Python and IBM iSeries, specia
 
 ## Languages 🌐
 
-- Tamil: Proficient Level
-- English 2: Advanced Level
+- Tamil : Proficient Level
+- English : Advanced Level
 
 ## Interests 🎨
 

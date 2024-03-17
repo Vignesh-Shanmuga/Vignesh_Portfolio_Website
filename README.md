@@ -1,6 +1,6 @@
 # Vignesh Shanmugam
 
-[My Website](https://www.vigneshshanmugam.me) | [LinkedIn](https://www.linkedin.com/in/contact-vigneshshanmugam) | [GitHub](http://github.com/Vignesh-S-GitHub) | [Email](shanmugamrenuga4@gmail.com) | [Resume](https://docs.google.com/document/d/1_bP0nxE5LQT54ZO21xSgYlihAVVihcQcq4lOWHmaxoA/edit?usp=sharing)
+[My Website](https://www.vigneshshanmugam.me) | [LinkedIn](https://www.linkedin.com/in/contact-vigneshshanmugam) | [GitHub](http://github.com/Vignesh-S-GitHub) | [Email](https://mail.google.com/mail/shanmugamrenuga4@gmail.com) | [Resume](https://docs.google.com/document/d/1_bP0nxE5LQT54ZO21xSgYlihAVVihcQcq4lOWHmaxoA/edit?usp=sharing)
 
 ---
 
